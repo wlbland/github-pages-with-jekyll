@@ -1,3 +1,5 @@
-# Welcome to my blog
+# Whisperable.com
 
-I'm glad you are here. I plan to talk about ...
+This is the home of the Whisperable podcast. Personal accounts of life in Russia.
+
+
